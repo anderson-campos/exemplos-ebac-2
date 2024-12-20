@@ -1,3 +1,1 @@
 "# exemplos-ebac-2" 
-ASIDUSAHDIUAHSDIUAS
-ASIUDAIUSDHIUASÍMCS\KL [OQW][DM [po,sdfmmmm]]
